@@ -1,0 +1,1 @@
+# Abdul-ga-bisa-ngomong
